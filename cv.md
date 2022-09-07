@@ -8,9 +8,9 @@
 
 **Phone:**
 
-**E-mail:** extrimer@yandex.ru
+**E-mail:** extrimer@yandex.ru.
 
-**Telegram:** @StrikerSQ
+**Telegram:** @StrikerSQ.
 
 ---
 
